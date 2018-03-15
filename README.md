@@ -16,3 +16,8 @@
 
 
 - Message jordan madison in msft intern slack at some point for pointers
+
+
+Apply to: 
+  - Google GHC Scholarship (due ...)
+  - Microsoft Diversity Conference Scholarship (due May 5)
